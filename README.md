@@ -8,3 +8,5 @@ Emanuel esteve aqui
 
 
 Alguma coisa aqui
+
+Clara Freire Não esteve aqui
