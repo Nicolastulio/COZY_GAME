@@ -4,4 +4,6 @@ JOGO NO ESTILO COZY, PARA REALIZAÇÃO DE UM JOGO PARA TCC DE FINAL DE ANO, PARA
 
 o cara é profissional, ele gosta de... ,o nome dele é Alan...
 
+Emanuel esteve aqui
+
 
